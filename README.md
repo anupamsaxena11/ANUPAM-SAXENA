@@ -1,2 +1,9 @@
 # ANUPAM-SAXENA
 MAKE MY OFFICE PAYROLL SOFTWARE APPLICATION
+There are a lot of payroll software applications out there. But, who can provide you with the best app that you can use for your business? Even if you try to find answers on the internet, you are only wasting your time. If you are using a <a href="https://hubpages.com/business/payrollsoftwaremakemyoffice">payroll software</a> different from Make My Office, it's time to switch now! MMO can offer you the best app in the market when it comes to managing the payroll system of your company. With just a click, you can produce a seamless payroll structure that won't complicate things in your company. It's software made with skills and passion. 
+
+
+MMO's payroll software application is chosen by companies because of its easy payroll process. The software can help you improve your payroll management and fix issues with just a click. Admit that there are a lot of details needed especially when you are a large business. But with MMO's product, you don't have to worry about all of this because the details can be automatically processed once you've entered them into the system. It is the best solution so far and if you are really wanting to do great plans for your company, you should consider this software. 
+
+
+Another good thing about MMO's <a href="https://www.makemyoffice.com/">payroll software</a> application is that is has a fully integrated program. There is a payroll procedure that can be done in one mouse click. With the right configuration, which is normally built-in, you can compute the salaries of your employees no matter how big their numbers are. There is also a manual option wherein you can manually check and review the data produced by the automatic system. It's both automatic and manual. The payroll software is very flexible to give you the ideal options for your business. Want to do it automatically? Just click a button! Want to double-check the data? Use its manual feature! 
